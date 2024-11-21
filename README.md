@@ -36,8 +36,6 @@ And go check out https://sketchfab.com/NovaNinja
 
 Ai chat bots:
 
-
-
 ![main-thumb-pb-5300823-200-wfxvdwddghsxziwxuyiwzgwuekkxwcbf](https://github.com/user-attachments/assets/a4c810d4-6bba-4371-a8e4-4b375932788e)  **IslamicAdvisorNow**
 
 ![main-thumb-pb-5300769-200-xyejxwejvsihnnpxlbxkcfpahymyhviy](https://github.com/user-attachments/assets/1ee3a76d-eb94-4964-94e6-1822cf76540f)  **LogoGeniusNow**
@@ -64,3 +62,4 @@ Ai chat bots:
 
 ![main-thumb-pb-5108912-200-hgxrlpdfvxastdvdvdmbnklraompgszz](https://github.com/user-attachments/assets/d573950c-e642-4e10-b58a-596b3645328c)   **Lumina-imagery**
 
+![main-thumb-pb-4957277-200-llbglwticdkfyyszwrifcllnetjyimur](https://github.com/user-attachments/assets/e672d260-d7c9-4043-8241-db0783ca6729)   **Lumin-GPT**
