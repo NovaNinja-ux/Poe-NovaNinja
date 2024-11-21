@@ -35,6 +35,36 @@ If you need anything, feel free to reach out to me at sketchmail38@gmail.com.
 And go check out https://sketchfab.com/NovaNinja 
 
 Ai chat bots:
-![main-thumb-pb-5108994-200-rpkmqhljjzmkrpzfytjagzhzvwuahcwt](https://github.com/user-attachments/assets/95294cb2-8dde-415e-a055-51968baa085b)![main-thumb-pb-5108958-200-bzbihuqkrosinvvpkehdenbbynukghqg](https://github.com/user-attachments/assets/c3c2dfe9-1437-419c-9400-c88a6e63963c)
-[main-thumb-pb-5300494-200-ameuwpgvkrgnywdzrkumczldibakyreb](https://github.com/user-attachments/assets/f3207314-a5f4-4de2-96f3-33a1865fc54b)
-**![main-thumb-pb-5300555-200-wjcsuopauammhbxkzkzpruaotwumrwht](https://github.com/user-attachments/assets/fed2d993-74a0-4971-b4b7-3e457f0e716d)
+
+
+
+![main-thumb-pb-5300823-200-wfxvdwddghsxziwxuyiwzgwuekkxwcbf](https://github.com/user-attachments/assets/a4c810d4-6bba-4371-a8e4-4b375932788e)
+
+![main-thumb-pb-5300769-200-xyejxwejvsihnnpxlbxkcfpahymyhviy](https://github.com/user-attachments/assets/1ee3a76d-eb94-4964-94e6-1822cf76540f)
+
+![main-thumb-pb-5300596-200-frlunfhakucymebgmqchxkdduenwovme](https://github.com/user-attachments/assets/15aa60d8-8be1-4f42-8614-badee1d8f8e4)
+
+![main-thumb-pb-5300555-200-wjcsuopauammhbxkzkzpruaotwumrwht](https://github.com/user-attachments/assets/77f05e71-6077-4232-a33e-fb38708c033a)
+
+![main-thumb-pb-5300494-200-ameuwpgvkrgnywdzrkumczldibakyreb](https://github.com/user-attachments/assets/89edf5e4-3144-45ba-8da8-c32a34ec1231)
+
+![main-thumb-pb-5300465-200-ftwoduogjwxvugbfmesvyyutrwlcowjq](https://github.com/user-attachments/assets/295fdcc9-be4c-45a7-b068-7a465ef0e848)
+
+![main-thumb-pb-5113185-200-ehmwboeaguvsqbfjrjckxyejixifbonm](https://github.com/user-attachments/assets/b76856ea-5c00-4fa2-94df-7e959ec063f3)
+
+![main-thumb-pb-5109009-200-hmaytxxdhkxabxnlefegvjcqixvwrdzz](https://github.com/user-attachments/assets/dc263afe-c6df-4096-89f0-a9ecde8b3678)
+
+![main-thumb-pb-5108994-200-rpkmqhljjzmkrpzfytjagzhzvwuahcwt](https://github.com/user-attachments/assets/7dcd9892-2141-4e1b-91e2-b42e90488842)
+
+![main-thumb-pb-5113213-200-chqdeoklrepxgeyflzofnrehrzbkogwf](https://github.com/user-attachments/assets/0c1d2bc5-8b6b-478e-91d3-be8670a05e92)
+
+![main-thumb-pb-5108994-200-rpkmqhljjzmkrpzfytjagzhzvwuahcwt](https://github.com/user-attachments/assets/51853b04-fbaf-471a-bcc2-11ab9ac2d142)
+
+![main-thumb-pb-4957524-200-fxqolrpnqkagrpqhjkvhmrldkxbkgakn](https://github.com/user-attachments/assets/98d42727-6a39-4436-9e71-303ed8d468c9)
+
+![main-thumb-pb-5108958-200-bzbihuqkrosinvvpkehdenbbynukghqg](https://github.com/user-attachments/assets/2061a68a-1bd1-4819-8054-c47610d97cb8)
+
+![main-thumb-pb-5108912-200-hgxrlpdfvxastdvdvdmbnklraompgszz](https://github.com/user-attachments/assets/d573950c-e642-4e10-b58a-596b3645328c)
+
+![main-thumb-pb-5108912-200-hgxrlpdfvxastdvdvdmbnklraompgszz](https://github.com/user-attachments/assets/47482cb7-ecb3-4048-9d3a-ce08fce05b7c)
+
