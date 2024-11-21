@@ -32,4 +32,4 @@ To explore these AI-powered tools and engage with them directly, please visit my
 Feel free to reach out if you have any questions or would like further information about any of the chatbots featured in this repository.
 
 If you need anything, feel free to reach out to me at sketchmail38@gmail.com.
-And go check out https://sketchfab.com/NovaNinja and https://poe.com/NovaNinja
+And go check out https://sketchfab.com/NovaNinja 
